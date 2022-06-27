@@ -23,7 +23,3 @@
 
 ➤ William: https://github.com/wlmlg
 
-
-    Acessse o site!
-    
-•Link: http://salsaesabor.x10.mx/
